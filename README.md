@@ -27,3 +27,9 @@ i dont know how this github shit works [WIP]
 ### MOST of my info is available @https://otoshigo.straw.page/
 
    ###### ooooo... you wanna drop a gimmick so bad.. ooo..
+
+# ‎ 
+
+<p align="left">
+  <img src="https://visitor-badge.laobi.icu/badge?page_id=rettier.rettier&left_color=crimson&right_color=firebrick" width="110" style="border-radius: 10px;" />
+</p>
