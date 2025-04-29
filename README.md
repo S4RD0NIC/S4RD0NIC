@@ -24,6 +24,6 @@ i dont know how this github shit works [WIP]
 
 # ‎ 
 
-### MOST of my info is @https://otoshigo.straw.page/
+### MOST of my info is available @https://otoshigo.straw.page/
 
    ###### ooooo... you wanna drop a gimmick so bad.. ooo..
